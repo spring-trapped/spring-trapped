@@ -1,16 +1,19 @@
-## Hi there 👋
+<p align="center">
+  <h4 align="center"
+    </a>
+    
 
-<!--
-**spring-trapped/spring-trapped** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="282" height="307" alt="Image" src="https://github.com/user-attachments/assets/cf2287ad-d86d-4ed0-942b-49e54771a6d8" />
 
-Here are some ideas to get you started:
+<img width="365" height="416" alt="Image" src="https://github.com/user-attachments/assets/47bebc9d-3895-40c6-a661-641b4cc5a83a" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+"love and peace!"
+
+♡ Sol/William/afton | she/he/they/it | SYS
+♡ I'm talkative, it's shutting me up that's the trick /j
+♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
+♡ my dni: is I block freely to create my own space. 
+
+<img width="191" height="247" alt="Image" src="https://github.com/user-attachments/assets/5f3b78e7-dd12-41d2-b854-259ea8e2b956" />
+
+cr: frosted__ice for all images
