@@ -12,6 +12,4 @@
 ♡ interests: FNAF , Gravity falls , Scream , bsd , mha (fandom dniuf or i do) , Stranger things , + more
 ♡ my dni: is I block freely to create my own space. 
 
-<img width="282" height="307" alt="Image" src="https://github.com/user-attachments/assets/cf2287ad-d86d-4ed0-942b-49e54771a6d8" />
-
-cr: frosted__ice for all images expect for icon
+![Image](https://github.com/user-attachments/assets/07620ce2-27cc-4195-ba71-02a5b11f38d9)
